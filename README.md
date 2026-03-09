@@ -29,6 +29,7 @@ Leadership Program – Aspire Institute (Harvard Business School)
 
 ## Connect with Me
 
-LinkedIn: Add your LinkedIn link
-GitHub: Add your GitHub profile link
+LinkedIn: https://www.linkedin.com/in/anitha-b-441829261/
+GitHub: https://github.com/anizzme
+Email: anithabaikani12@gmail.com
 
